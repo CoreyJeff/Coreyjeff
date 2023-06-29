@@ -1,1 +1,1 @@
-### Hey my name is Corey
+### Hey, Im Corey, Im a 
